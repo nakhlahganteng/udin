@@ -1,2 +1,2 @@
-# udin
-Tentang udin si pembuat apa saja
+# nnnn
+Tentang nakhlah yang bisa membuat sesuatu menggunakan pc
